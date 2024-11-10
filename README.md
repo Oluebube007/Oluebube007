@@ -5,7 +5,7 @@
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/chidiebele-bernards)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: very creative
-
+- see puppies [here](https://unsplash.com/s/photos/puppy)
 
 
 
